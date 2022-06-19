@@ -10,4 +10,20 @@ Untuk membaca readmie tingkat lanjut anda bisa membaca file READMIE.txt yang ada
 
 Yok bantu motenisasi kami dengan menngikuti beberapa akun yang kami miliki:
 
+  Youtube:
   
+          https://youtube.com/channel/UCscuxW-ZUViftGyJ9Z1cPbw/
+          
+  Insagram:
+  
+          https://www.instagram.com/memelucubikin
+          
+  Website:
+  
+          https://progpem.blogspot.com/2022/04/hom.html
+          
+  Github:
+  
+        https://github.com/Sreetx/
+
+ Oke guys itu aja ya, ingat! script ini bukan untuk tindak kejahatan script ini hanya untuk pembelajaran. Kami tidak bertanggung jawab atas apapun yang anda lakukan apapun itu.
