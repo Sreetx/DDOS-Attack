@@ -8,7 +8,7 @@ KAMI MEMBUAT SCRIPT INI HANYA UNTUK MENGUJI KEAMANAN WEBSITE, BUKAN UNTUK MERUSA
 
 Untuk membaca readmie tingkat lanjut anda bisa membaca file READMIE.txt yang ada pada daftar diatas, kalian download dulu lah filenya.
 
-Yok bantu motenisasi kami dengan menngikuti beberapa akun yang kami miliki:
+Yok bantu monetisasi kami dengan menngikuti beberapa akun yang kami miliki:
 
   Youtube:
   
